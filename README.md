@@ -1,1 +1,1 @@
-# The-AliX-Legend-App
+# The AliX Legend App
